@@ -8,7 +8,6 @@
 
 ###### :red_circle: Summary of Qualifications
 > - A bachelor’s degree in Philosophy, Yangon University of Distance Education
-> -	Double-lingual candidate: native in Myanmar and Intermediate in English
 > -	A versatile background in IT and Administration
 > - Experienced in digital business platforms and ERP system
 > -	Comfortable under pressure and with time constraints
